@@ -1,0 +1,1 @@
+# NM2023TMID26557Te-Tableau-HR-Scorecard-Measuring-Success-in-Talent-Management
